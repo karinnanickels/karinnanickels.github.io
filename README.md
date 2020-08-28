@@ -1,5 +1,5 @@
 # karinnanickels.github.io
 
-UNCO Student 
+University of Northern Colorado Business Marketing Student 
 
-Business Marketing
+Vice President of Risk Management Alpha Phi 
